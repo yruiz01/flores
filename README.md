@@ -1,4 +1,4 @@
 # floresamarillas
 
-¡Hola! Soy Johnatan Steven Ing. de Sistemas y estoy encantado de conocerte.
+¡Hola! Yullios Ruiz Ing. de Sistemas, espero te guste este proyecto :)
 
